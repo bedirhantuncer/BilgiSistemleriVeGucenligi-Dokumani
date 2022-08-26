@@ -1,0 +1,1 @@
+# BilgiSistemleriVeGucenligi-Dokumani
