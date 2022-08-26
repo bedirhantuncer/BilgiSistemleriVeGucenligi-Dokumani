@@ -1,1 +1,1 @@
-# BilgiSistemleriVeGucenligi-Dokumani
+# BilgiSistemleriVeGuvenligi-Dokumani
